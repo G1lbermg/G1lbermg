@@ -1,2 +1,3 @@
 
-![terminal_typing](https://github.com/user-attachments/assets/e577bd5c-cf25-4890-ab70-0fa793df81fd)
+
+![terminal_typing](https://github.com/user-attachments/assets/46f0cc52-bfd9-4999-aa73-911ccca92a94)
